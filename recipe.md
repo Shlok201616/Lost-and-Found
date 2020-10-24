@@ -1,0 +1,1 @@
+Take 4-5 chopped almonds crush them in mixer then mix 4-5 dates in crushed  add 1 cup milk then add coffe 1/2tsp and then mix the mixture in mixer and make the decoration of creame and serve it.
